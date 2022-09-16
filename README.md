@@ -1,4 +1,4 @@
-///	RATE PATSAN A KAK OTSUDA VIITI AAAAAA++
-//	/ :q
-/q
+
+
+
 
